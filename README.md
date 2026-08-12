@@ -2,7 +2,7 @@
 
 
 ### 　　　　　　　　　　　　𝄢．⊹．' or is this your act , of saving face ? '𓈒⠀⁺ ݃　
-####  　　　　　　　　　　　　　﹒★﹒C:/user/https://rentry.co/homesweetholes ﹒99.99999％ 🪫﹒
+####  　　　　　　　　　　　　　﹒★﹒C:/user/updating... ﹒99.99999％ 🪫﹒
 #### 　　　　　　　　　　　　╰ ﹒🪭 write me ˖﹒ᘏ. https://cyberlinked.atabook.org/?page=1 
 
 
