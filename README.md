@@ -4,8 +4,9 @@
 ### 　　　　　　　　　　　　𝄢．⊹．' $\color{#ff0000}\textsf{or is this your act , of saving face ?}$ '𓈒⠀⁺ ݃　
 ####  　　　　　　　　　　　　　﹒★﹒C:/user/https://rentry.co/DEATHWlSHED ﹒99.99999％ 🪫﹒
 #### 　　　　　　　　　　　　╰ ﹒🪭 $\color{#ff0000}\textsf{write me . . }$˖﹒ᘏ. https://cyberlinked.atabook.org/?page=1 ﹒⊹
+　　　　　　　　　　　　𓈒  ⠀.  ❤️  $\color{#ff0000}\textsf{have a present?}$ 𓎐 https://forms.gle/8AMV7yc88iBoZCmR8  　ᶻ 𝗓 𐰁
 
-  　　　　　　　　　　　　 　　　　　　　　　　　　 <img src="https://komarev.com/ghpvc/?username=thesorrowingbody&label=omniscience&color=9e0000" />
+  　　　　　　　　　　　　 　　　　　　　　　　　　　 <img src="https://komarev.com/ghpvc/?username=thesorrowingbody&label=stares&color=9e0000" />
 
 
 ![alt text](https://64.media.tumblr.com/ecdc2419fd5e8a2604dfc77bc5a8508b/1e7d94793605e8d1-0e/s2048x3072/adc6fc3b2274f3254d735e3c3130d972dd7853ee.pnj)
