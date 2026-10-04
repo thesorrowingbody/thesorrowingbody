@@ -2,9 +2,9 @@
 
 
 ### 　　　　　　　　　　　　　　[![Typing SVG](https://readme-typing-svg.demolab.com?font=Odibee+Sans&size=30&pause=1000&color=F70000&width=435&lines=%F0%9D%84%A2%EF%BC%8E%E2%8A%B9%EF%BC%8E+Do+you+truly+feel+repentance%3F+%E2%81%BA+;%E2%9C%A7%EF%BC%8E.+Or+is+this+your+act%2C+of+saving+face%3F+%E2%98%86)](https://git.io/typing-svg)　
-####  　　　　　　　　　　　　　　　　　　　　　　　　　　　　﹒★﹒[rentry](https://rentry.co/DEATHWlSHED) 🪫﹒
-#### 　　　　　　　　　　　　╰ ﹒🪭 $\color{#ff0000}\textsf{write me . . }$˖﹒ᘏ. --- [⸝⸝ ata](https://cyberlinked.atabook.org/?page=1) ﹒⊹
-　　　　　　　　　　　　𓈒  ⠀.  ❤️  $\color{#ff0000}\textsf{have a present?}$ 𓎐 --- [‧˚₊⊹ gift](https://forms.gle/8AMV7yc88iBoZCmR8) 　ᶻ 𝗓 𐰁
+####  　　　　　　　　　　　　　　　　　　　　　　　　　　﹒★﹒[rentry](https://rentry.co/DEATHWlSHED) 🪫﹒
+#### 　　　　　　　　　　　　　　　　　╰ ﹒🪭 $\color{#ff0000}\textsf{write me . . }$˖﹒ᘏ. --- [⸝⸝ ata](https://cyberlinked.atabook.org/?page=1) ﹒⊹
+　　　　　　　　　　　　　　　　𓈒  ⠀.  ❤️  $\color{#ff0000}\textsf{have a present?}$ 𓎐 --- [‧˚₊⊹ gift](https://forms.gle/8AMV7yc88iBoZCmR8) 　ᶻ 𝗓 𐰁
 
   　　　　　　　　　　　　 　　　　　　　　　　　　　 [![Hits](https://hits.sh/github.com/thesorrowingbody.svg?style=flat-square&label=our%20open%20eyes%E3%80%80%E2%9F%A2&color=970000&labelColor=310606)](https://hits.sh/github.com/thesorrowingbody/)
 
