@@ -10,7 +10,7 @@
                                                                                                                                           
 
 　　　　　　　　　　　　　　　　　　　　　　　　[![Hits](https://hits.sh/github.com/thesorrowingbody.svg?style=flat-square&label=our%20open%20eyes%E3%80%80%E2%9F%A2&color=970000&labelColor=310606)](https://hits.sh/github.com/thesorrowingbody/)
-####  　　　　　　　　　　　　　　　　　![alt text](https://64.media.tumblr.com/93f96f04d0bc95ccf818a69f7c79db7c/609bbd0b239fa74d-5b/s75x75_c1/3bdcbb5d6c7cab12866c23eca865d1b5c1f3ecf8.gifv)﹒◡◡◡　[@Ponytowns-rewards](https://github.com/Ponytowns-rewards) - $\color{#ff0000}\textsf{pt's Sunday}$  🪫　![alt text](https://64.media.tumblr.com/b2a3cd4e392179a7f7f9314fa7beb281/b4e140abb315b8d8-42/s75x75_c1/47fcb18324a385d6c239a46f388c25efc9549767.gifv)
+####  　　　　　　　　　　　　　　　　　![alt text](https://64.media.tumblr.com/93f96f04d0bc95ccf818a69f7c79db7c/609bbd0b239fa74d-5b/s75x75_c1/3bdcbb5d6c7cab12866c23eca865d1b5c1f3ecf8.gifv)﹒◡◡◡　[@Ponytowns-rewards](https://github.com/Ponytowns-rewards) - $\color{#ff0000}\textsf{Pt's Sunday}$  🪫　![alt text](https://64.media.tumblr.com/b2a3cd4e392179a7f7f9314fa7beb281/b4e140abb315b8d8-42/s75x75_c1/47fcb18324a385d6c239a46f388c25efc9549767.gifv)
   　　　　　　　　　　　　　　　　　　　　　　　      
 ![alt text](https://64.media.tumblr.com/ecdc2419fd5e8a2604dfc77bc5a8508b/1e7d94793605e8d1-0e/s2048x3072/adc6fc3b2274f3254d735e3c3130d972dd7853ee.pnj)
 　　　　　　　　　　　　　　　　　　　　　　　
